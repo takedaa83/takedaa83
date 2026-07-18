@@ -2,7 +2,7 @@
 - 👀 I’m interested in developing plugins and systems
 - 🌱 I’m currently learning python. I main java,Js,CSS and ofcourse, the classic HTML!
 - 💞️ I’m currently looking to collaborate on projects. You may dm me on discord: pokeruu
-- 📫 How to reach me: Mail - takedaaa663@gmail.com or discord - pokeruu
+- 📫 How to reach me: Mail - takedaaa663@gmail.com or discord - pokeeruu
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Nothing!
 
